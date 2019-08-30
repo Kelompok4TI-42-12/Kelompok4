@@ -8,6 +8,6 @@ M. Farhan Maulana (1201184239)
 
 Novia Walrahmadani (1201184071)
 
-Nadya Putri Febrianti (1201184158)
+Nadia Putri Febrianti (1201184158)
 
 Naufal Aulia Meika (1201183340)
